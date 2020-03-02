@@ -1,6 +1,6 @@
 7 penyihir bareng mas Yamada
 
-https://drive.google.com/uc?id=1AIfT_Ph_0LUnhlfPpkta1Hou2ktysFOu&confirm=jYel&export=download
+otakudrive.me/?id=Y1Y1UzNlTGtma2VnYVJoNnpGcmlTczI3SnMyK242Mk52aHdQbkxPZVpXQ3kyL3VCSVdScjJHbno2eHV4V0pIZg==
 
 https://drive.google.com/uc?id=1lZ5W_6XHZYwaJh-YQMnSowChDBr_5aEl&confirm=jYel&export=download
 
