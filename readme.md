@@ -6,7 +6,9 @@ Yamada-kun to 7-nin no Majo Episode 3 Subtitle Indonesia
 Yuk Gabung Di Grup Kurokanime
 
 Facebook : https://www.facebook.com/groups/2500625600261844/
+
 Telegram : https://t.me/kurokanime
+
 Discord : https://discord.gg/42UKcWe
 
 Sinopsis :
